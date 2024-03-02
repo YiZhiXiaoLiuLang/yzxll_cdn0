@@ -23,6 +23,8 @@
 
 [【工具】Via浏览器_v4.3.1(啊精魔改版).apk](【工具】Via浏览器_v4.3.1(啊精魔改版).apk)
 
+[跑路以及躲避警察指南.txt](跑路以及躲避警察指南.txt)
+
 # 临时放一下 - Link
 
 [https://ahhb.lanzouk.com/iqjPS0zbzbsb](https://ahhb.lanzouk.com/iqjPS0zbzbsb)
