@@ -28,3 +28,5 @@
 # 临时放一下 - Link
 
 [https://ahhb.lanzouk.com/iqjPS0zbzbsb](https://ahhb.lanzouk.com/iqjPS0zbzbsb)
+
+[https://f.ws59.cn/f/dneygooe60p 复制链接到浏览器打开](https://f.ws59.cn/f/dneygooe60p)
