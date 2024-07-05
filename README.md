@@ -27,6 +27,8 @@
 
 [（羊羊）凝胶使用与制作究极防呆版.pdf](凝胶使用与制作究极防呆版.pdf)
 
+[爱呀河谜案录.txt](爱呀河谜案录.txt)
+
 # 临时放一下 - Link
 
 [https://ahhb.lanzouk.com/iqjPS0zbzbsb](https://ahhb.lanzouk.com/iqjPS0zbzbsb)
