@@ -25,12 +25,7 @@
 
 [跑路以及躲避警察指南.txt](跑路以及躲避警察指南.txt)
 
-[（羊羊）凝胶使用与制作究极防呆版.pdf](凝胶使用与制作究极防呆版.pdf)
 
 [爱呀河谜案录.txt](爱呀河谜案录.txt)
 
 # 临时放一下 - Link
-
-[https://ahhb.lanzouk.com/iqjPS0zbzbsb](https://ahhb.lanzouk.com/iqjPS0zbzbsb)
-
-[https://f.ws59.cn/f/dneygooe60p 复制链接到浏览器打开](https://f.ws59.cn/f/dneygooe60p)
