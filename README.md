@@ -34,6 +34,7 @@
 
 # 临时放一下 - Link
 
+[https://t.wss.pet/f/fhy4ban4wmw 复制链接到浏览器打开](https://t.wss.pet/f/fhy4ban4wmw 复制链接到浏览器打开)
 [https://f.wss.cc/f/f2tejnbypmg](https://f.wss.cc/f/f2tejnbypmg 复制链接到浏览器打开)
 
 
